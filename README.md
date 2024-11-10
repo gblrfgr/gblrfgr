@@ -1,3 +1,5 @@
+![](GZ9isw4b0AMmVRV.jpg)
+
 # ⌨️ Hello there!
 
 ### 🕹 My name is Juniper Mills. I'm a computer engineering student (class of 2026) who works with a lot of embedded software, mathematical modeling, and control theory. I am currently seeking an internship for summer 2025.
