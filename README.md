@@ -1,4 +1,5 @@
 ![](GZ9isw4b0AMmVRV.jpg)
+*Photo credit to [SpaceX](https://x.com/SpaceX/status/1846303308186898627)*
 
 # ⌨️ Hello there!
 
